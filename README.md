@@ -86,9 +86,9 @@ In egregious offenses (presenting another student’s project, an external produ
 			- good to get that out of the way before starting work
 - Hard Work: 80-90hrs/wk minimum
 - The maximum point of learning is right at the edge of learning and panic.
-![learning zone](learning-zone.jpeg)
+![learning zone](http://imgur.com/MpOJuha)
 - This experience is a rollercoaster.
-![informed optimism?](informed-optimism.jpeg)
+![informed optimism?](http://imgur.com/2WjaucF)
 
 <br>
 
